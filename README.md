@@ -1,2 +1,2 @@
 # HW-5-Design-page
-https://github.com/user-attachments/assets/a4b58701-2d0b-4341-a2e2-fb837d85ceaf
+https://github.com/user-attachments/assets/24347d80-55e0-45cb-8707-6c9c56155fc2
